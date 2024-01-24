@@ -14,7 +14,7 @@ We love you Cassie!
 Since the release of this information, the Vision team and some members have been attempting to DOX Cassie,
 and pushing false naratives due to an image that was allegedly sent to a user
 
-For more clarity, if you look into the External Groupchat Dump, you will release this image was sent there, and not infact anyone's dms
+For more clarity, if you look into the External Groupchat Dump, you will realise this image was sent there, and not infact anyone's dms
 they have cropped it to look out of context. that along is supicious on Visions part, but eh they're known for this kind of thing.
 
 The history behind that image, Nano and Cassie were in a vc, and she pulled it up on screenshare from some discord server, Upon doing so
