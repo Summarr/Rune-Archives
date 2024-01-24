@@ -22,3 +22,4 @@ Nano said "Broooooo what the fuckk... wait send it in the groupchat", This is no
 Context has been stripped, along with them now saying the chat is full of minors (Was never clarified at any point)
 
 So watch out with Vision, as you can see they are getting very desperate right now, it's the side affect of your exit-scam being released before you can perform it ig
+(p.s, i am waiting for cassie to come back and proove they were in call)
